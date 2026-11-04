@@ -5,3 +5,5 @@ a basic recipe website with just HTML.
 I'm scared...
 
 2 days later... oh man, i'm seriously bad at keeping this consistent.
+
+okay, I finally got to finish this OMGGGGG. this was easier than i expected, i'm just lazy and my focus is misplaced.
